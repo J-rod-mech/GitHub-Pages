@@ -52,5 +52,5 @@ Jason rankings:
 4. Jason Vorhees - lethal face card
 5. Jason the Ween - makes videos
 
-[JASONSTOCK is UP!](JASONSTOCK.png) Invest now!!!
+[JASONSTOCK is UP!](JASONSTOCK.png) <ins>**Invest now!!!**</ins>
 ![](live.png)
